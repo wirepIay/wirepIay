@@ -1,5 +1,6 @@
 <div align="center">
-  <img src="https://file.garden/aIO4fwBlriZhIBNs/tele.png" width="300">
+  <p align="center"> ♪ roblox alt </p>
+  <img src="https://file.garden/aIO4fwBlriZhIBNs/blinkie.gif" width="300">
 </div>
 
-<p align="center"> <a href= "https://x.com/twixtrickuz/status/2054301862531055722?s=20"> art creds </a> </p>
+<p align="center"> <a href= "https://x.com/SPRUNKlS/status/2072379225924075771?s=20"> pfp creds </a>  ‎ ‎ ‎ ‎‎ ‎ ‎  <a href= "https://github.com/suselle"> main </a> </p>
